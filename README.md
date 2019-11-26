@@ -11,4 +11,4 @@ School Schedule:
 7th Period: English
 8th Period: Big History Project
 9th Period: Physical Education
-Fun Facts about me: I'm asian
+Fun Facts about me: I'm VERY asian
