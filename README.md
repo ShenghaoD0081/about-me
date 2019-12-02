@@ -12,3 +12,4 @@ School Schedule:
 8th Period: Big History Project
 9th Period: Physical Education
 Fun Facts about me: I'm a VERY GOOD asian
+yes
